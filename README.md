@@ -11,10 +11,7 @@
   <br>
 
   <sub>
-    <a href="LINK_1">rentry</a> &nbsp;·&nbsp; 
-    <a href="LINK_2">strawpage</a> &nbsp;·&nbsp; 
-    <a href="LINK_3">prns.cc</a> &nbsp;·&nbsp; 
-    <a href="LINK_4">atabook</a>
+    <a href="https://sahlglitchyxx.atabook.org/">݁新book </a>
   </sub>
   <br><br>
 
