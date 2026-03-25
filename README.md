@@ -7,7 +7,7 @@
   <br>
   <br><br>
 
-  <img src="https://64.media.tumblr.com/092c5361d37601131f478f3ef932af55/1f7cb71f9e13c52a-e5/s1280x1920/0d33e8a5ac7f6eadb0d7f3af34c2796357c476cb.gifv" width="500">
+  <img src="https://64.media.tumblr.com/0cc401377ff65c4bdcae4c6422f16f55/59f199b38048d7d6-0f/s1280x1920/cbb0ff47e14f5665e05819294cf76cfebcfd954b.pnj" width="500">
   <br>
 
   <sub>
