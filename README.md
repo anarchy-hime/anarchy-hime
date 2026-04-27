@@ -1,22 +1,15 @@
-<p align="center">
-  <img src="https://64.media.tumblr.com/35fcbd62f93cf9141f0b468777821e52/55ecb559b0a36974-1d/s1280x1920/d90b54f4581510989b42ca043223e94fa6f4ef58.pnj" width="500">
-  <br>
+<div align="left">
+<img src="https://64.media.tumblr.com/9fcaa2ff298b9463e4e85c8ec6a835d6/926b04cdc1744a9e-2f/s1280x1920/1504a0d87176d9bd02670909c991bb713e3d622e.pnj" width="400" align="left" style="margin-right: 20px;">
+<div align="center">
+<br>
+<p>&nbsp;<b><a href="https://sahlglitchyxx.atabook.org/"><font color="green">新book </font></a></b> &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <b><a href="https://p1c0f4n.straw.page/"><font color="green">straw</font></a></b></p>
+<br>
+<p> <font color="orchid">blehh &nbsp;&nbsp;&nbsp;&nbsp; ૮ ˶ᵔ ᵕ ᵔ˶ ა</font></p>
+<br>
+<p> &nbsp;&nbsp; <font color="orchid">follow my main or boombox will appear in your room at 3am./nsrs</font></p>
+<br>
+<img src="https://64.media.tumblr.com/5e3395e0e8e59f6cfbe828e09c7ba7d3/30eed85632917809-6a/s1280x1920/2268d5ad0d39850723b81a4f0291799db2e3ee8d.pnj" width="80">
+</div>
 
-<img src="https://komarev.com/ghpvc/?username=R0CKETLAUNCHER&style=pill&color=321e17&label=%F0%9F%8D%8F" />
-  
-  <br>
-  <br><br>
-
-  <img src="https://64.media.tumblr.com/46b8d9e4b09946c53a2587a5ec32f8ae/55ecb559b0a36974-67/s400x600/62c213aff5a8fe9912e8721b67ea1bb3d56fdfbd.pnj" width="500">
-  <br>
-
-  <sub>
-    <a href="https://sahlglitchyxx.atabook.org/">݁新book </a>
-  </sub>
-  <br><br>
-
-  <img src="https://64.media.tumblr.com/23e30c236facada36cf7d1024d5b666b/55ecb559b0a36974-a9/s2048x3072/d6cb62b6beaa8b01a3991d57a978daf2b5c2055d.pnj" width="500">
-  <br>
-
-  <img src="https://64.media.tumblr.com/1b92a9f1c69a645251968bba82084766/55ecb559b0a36974-c2/s1280x1920/88d2e08f7c7fe79f4ea45a7081ef335bee898097.pnj" width="500">
-</p>
+<br clear="left"/>
+</div>
